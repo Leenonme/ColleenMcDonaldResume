@@ -5,7 +5,7 @@ Columbus, Oh 43214
 ColleenAnnMcDonald@gmail.com
 
 ##Objective
-Seeking to secure a coveted seat for Ada Academy Cohort 8, and to holistically transform my career trajectory
+Seeking to secure a coveted seat for Ada Academy Cohort 8, and to holistically transform my career trajectory.
 
 ##Experience  
 * **Instructional Assistant** :apple:, Columbus City Schools: Columbus, OH 2015-Present  
