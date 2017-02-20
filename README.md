@@ -5,17 +5,17 @@ Columbus, OH 43214
 ColleenAnnMcDonald@gmail.com
 
 ###Objective
-Seeking to earn an opportunity to excel at Ada Academy and expand my capabilities.  
+Seeking to earn an opportunity to excel at Ada Academy and expand my capabilities in coding and career prospects.
 
 ###Education
 * Bachelors of Fine Art: Columbus College of Art and Design Columbus, OH 2008
 
 ###Experience 
 * **Instructional Assistant, Columbus City Schools**: Columbus, OH 2015-Present  
-Providing individual care and assistance to students with special needs. Helping to create to maintain a safe and productive learning environment.
+Providing individual care and assistance to students with special needs. Helping to create to maintain a safe and productive learning environment. Learned and implement valuable communication techniques and behavior management with students through daily work experience and collaborating with other professionals on staff 
 
 * **Sailing Instructor, Columbus Parks and Recreation**: Columbus, OH 2016-Present, 2004-2008  
-Working closely with up the 30 children in a summer camp setting. Organized and planned a variety of activities that encourage physical and intellectual growth. Ensured safety of the children in a learning environment where inherent fears are present. Proving individual care for children with multiple disabilities in a unique setting.
+Working closely with up the 30 children in a summer camp setting. Organize and plan a variety of activities that encourage physical and intellectual growth. Ensure safety of the children in a learning environment where inherent fears are present. Proving individual care for children with multiple disabilities in a unique setting.
 
 * **Sales Associate, Midwest Photo Exchange**: Columbus, OH 2011-2016  
 Ensured customers received outstanding service. Maintaining a close relationship with professional photographers and customers. Facilitated sales, and rental of camera equipment. Providing technical support to photographers.  Utilized experience to excel in an ever-changing environment.      
@@ -34,6 +34,6 @@ Donating time to help socialize adoptable cats.
 Purchasing and collecting gifts for low-income youth.
 
 * **Senior Portraits 2015-present**:2015-Present  
-Providing my photography services to low-income youth.
+Providing photography services to low-income youth.
 
 
