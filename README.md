@@ -4,13 +4,13 @@
 Columbus, Oh 43214  
 ColleenAnnMcDonald@gmail.com
 
-##Objective
+###Objective
 Seeking to secure a coveted seat for Ada Academy Cohort 8, and to holistically transform my career trajectory.
 
-##Education
+###Education
 * Bachelors of Fine Art: Columbus College of Art and Design Columbus, OH 2008
 
-##Experience  
+###Experience  
 * **Instructional Assistant** :apple:, Columbus City Schools: Columbus, OH 2015-Present  
 Providing individual care and assistance to students with special needs. Helping to create to maintain a safe and productive learning environment.
 
@@ -20,7 +20,7 @@ Working closely with up the 30 children in a summer camp setting. Organized and 
 * **Freelance Photographer/Assistant**:camera: Self Employed: 2008-Present  
 Specializing in portrait and event photography, documenting some of life's happier moments. Assisted a wide range of photography professionals in many different locations, from interior shoots of low income housing in the south side of Chicago, to environmental portraits at a paper mill in Maine.
 
-##Volunteer
+###Volunteer
 * **Delivering Care 2016-present**:2016-Present  
 Purchasing, creating, and disturbing personal care packages for displaced adults.
 
