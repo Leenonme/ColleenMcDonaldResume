@@ -1,7 +1,7 @@
 ## ColleenMcDonaldResume
 ###Colleen McDonald  
 444 Oakland Park Ave.  
-Columbus, Oh 43214  
+Columbus, OH 43214  
 ColleenAnnMcDonald@gmail.com
 
 ###Objective
