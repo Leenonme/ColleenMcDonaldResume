@@ -5,7 +5,7 @@ Columbus, OH 43214
 ColleenAnnMcDonald@gmail.com
 
 ###Objective
-Seeking to earn an opportunity to excel at Ada Academy and expand my capabilities in coding and career prospects.
+Seeking to earn an opportunity to excel at Ada Academy, develop my capabilities in coding, and expand career prospects.
 
 ###Education
 * Bachelors of Fine Art: Columbus College of Art and Design Columbus, OH 2008
