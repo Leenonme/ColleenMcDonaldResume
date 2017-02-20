@@ -12,7 +12,7 @@ Seeking to earn an opportunity to excel at Ada Academy, develop my capabilities 
 
 ###Experience 
 * **Instructional Assistant, Columbus City Schools**: Columbus, OH 2015-Present  
-Providing individual care and assistance to students with special needs. Helping to create to maintain a safe and productive learning environment. Learned and implement valuable communication techniques and behavior management with students through daily work experience and collaborating with other professionals on staff.
+Providing individual care and assistance to students with special needs. Helping to create to maintain a safe and productive learning environment. Learned and implemented valuable communication techniques and behavior management with students through daily work experience and collaborating with other professionals on staff.
 
 * **Sailing Instructor, Columbus Parks and Recreation**: Columbus, OH 2016-Present, 2004-2008  
 Working closely with up the 30 children in a summer camp setting. Organize and plan a variety of activities that encourage physical and intellectual growth. Ensure safety of the children in a learning environment where inherent fears are present. Providing individual care for children with multiple disabilities in a unique setting.
