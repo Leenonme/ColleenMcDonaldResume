@@ -24,16 +24,16 @@ Ensured customers received outstanding service. Maintaining a close relationship
 Specializing in portrait and event photography, documenting some of life's happier moments. Assisted a wide range of photography professionals in many different locations, from interior shoots of low income housing in the south side of Chicago to environmental portraits at a paper mill in Maine.
 
 ###Volunteer
-* **Delivering Care 2016-present**:2016-Present  
+* **Delivering Care**:2016-Present  
 Purchasing, creating, and disturbing personal care packages for displaced adults.
 
-* **Cat Welfare 2014-present**:2015  
+* **Cat Welfare**:2015  
 Donating time to help socialize adoptable cats.
 
-* **Christmas Shoppe 2015-present**:2015-Present  
+* **Christmas Shoppe**:2015-Present  
 Purchasing and collecting gifts for low-income youth.
 
-* **Senior Portraits 2015-present**:2015-Present  
+* **Senior Portraits**:2015-Present  
 Providing photography services to low-income youth.
 
 
