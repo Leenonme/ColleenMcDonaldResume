@@ -5,7 +5,7 @@ Columbus, OH 43214
 ColleenAnnMcDonald@gmail.com
 
 ###Objective
-Seeking to earn a coveted seat at Ada Academy to transform my career opportunities.
+Seeking to earn a coveted seat at Ada Academy to transform my career opportunity.
 
 ###Education
 * Bachelors of Fine Art: Columbus College of Art and Design Columbus, OH 2008
